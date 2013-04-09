@@ -14,4 +14,6 @@ Jenny: Something like 5 mins. <br/>
 Bathroom moment
 ----------------
 Jayne knock on the bathroom's door.<br/>
-Jayne: Heyyyyy, Bryan, are you still here?
+Jayne: Heyyyyy, Bryan, are you still here? <br/>
+**Tarzan: No it's me ! Why are you seeking Bryan? Should I punch him?** <br/>
+Jayne: Hey calm down little fury! I just need to ask him some questions.
